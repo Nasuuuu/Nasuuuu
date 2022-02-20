@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Nasuuuu
-- 👀 I’m interested in 2d anime girls
+- 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
-- 💞️ I get no bitches 
+- 💞️ she belong to the streets
 - 📫 How to reach me (u cant)...
 
 <!---
